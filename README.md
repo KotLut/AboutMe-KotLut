@@ -6,3 +6,4 @@
 - 👥 I want to collaborate on game development and geography.
 - ⚡ Fun fact: I have good nickname ;)
 - PS: I'm actively working on the game. Sometimes.
+- PPS: Sometimes I like to relax ^-^
